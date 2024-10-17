@@ -1,7 +1,5 @@
 - 👋 Hi, I’m Enzo Cocetti
-- Ultrakill Speedrunner
-- Master of Calamity Mod (Sefl Claimed)
-- Inspiring Game Designer
+- aspiring Game Designer
 - reach me at ezco2007@gmail.com
 
 <!---
